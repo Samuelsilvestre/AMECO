@@ -61,6 +61,5 @@ A crise da COVID-19 resultou em um choque fiscal **instantâneo e sincronizado**
 ---
 
 💡 **Insight:**  
-A projeção da dívida públ
----
+A projeção da dívida pública dos países da Europa tende a aumentar com os pacotes de ajuda militar e econômica à Ucrânia, além do financiamento das próprias forças armadas e da indústria bélica.
 
